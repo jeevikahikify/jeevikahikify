@@ -1,5 +1,5 @@
 # 💫 About Me:
-i am currently learing programming languagge
+i am currently learing programming language
 
 
 ## 🌐 Socials:
